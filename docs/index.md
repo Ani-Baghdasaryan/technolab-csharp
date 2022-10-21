@@ -8,7 +8,7 @@ Samvel Arustamyan (samvel.arustamyan"shnik"gmail.com)
 
 ## Participants
 
-*
+*Ani Baghdasaryan
 
 ## Resources 
 
